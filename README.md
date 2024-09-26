@@ -2,4 +2,4 @@
 Credito @Progrmação Web - Youtube
 
 
-Apenas um estudo da rotina 
+Apenas um mural de anotações e estudo.
